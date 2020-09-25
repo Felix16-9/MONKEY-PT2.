@@ -1,1 +1,0 @@
-# MONKEY-PT2.
